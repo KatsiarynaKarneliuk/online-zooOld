@@ -1,1 +1,1 @@
-https://katsiarynakarneliuk.github.io/rsschool-cv/online-zoo/
+https://katsiarynakarneliuk.github.io/online-zoo/
